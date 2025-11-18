@@ -1,1 +1,6 @@
 # BetterBravo
+
+betterbravostupidsites
+betterbravo
+betterbravostrict
+betterbravosnowflake
